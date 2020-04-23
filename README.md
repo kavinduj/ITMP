@@ -1,2 +1,0 @@
-# ITMP
-GroupP
